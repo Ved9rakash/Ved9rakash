@@ -6,5 +6,3 @@ Hobbies:
 - Love to code
 - Like to gain general knowledge
 - Love to play Basketball
-
-A bit relegious here. I love reading Shreemad Bhagwat Geeta and like to know vedic astorlogy.
